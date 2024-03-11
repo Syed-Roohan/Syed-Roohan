@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Android Development**
 
-- 📫 How to reach me **sebdesignersofficial@gmail.com**
+- 📫 How to reach me **syed.roohan09@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
